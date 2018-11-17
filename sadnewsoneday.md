@@ -1,3 +1,3 @@
 ## sad news one day
 
-> The premise of the song is that one day someone will get the news that you've past and how this person actually reacts, but you're both still alive the create stronger bonds with those people and overcoming the distance that exists between people who are wary.
+> The premise of the song is that one day someone you're close to will get the news that you've passed. How is this person going to be affected and face the stress of life. You're still alive and you reflect on what your people mean to you and all tat they have given you and how they always had your back.
